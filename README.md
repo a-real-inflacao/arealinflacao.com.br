@@ -1,0 +1,1 @@
+# arealinflacao.com.br
